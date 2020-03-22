@@ -13,7 +13,7 @@ With the dongle emulator you can forget all the threats being sure your business
 We are customer oriented company, giving all of our efforts to keep our clients happy. Free trial version of dongle emulator guarantees you are getting exactly what you are looking for. All the information is kept strictly confidentially, no leaks are possible.
 
 # IMPORTANT! COVID-19 alert
-We know the situation about COVID-19 pandemшс is catastrophic and believe our software can significantly reduce the risk of infection by allowing people workign at home using dongle emulator instead of physical key. If our software allows you or your emplyees to stay home, please contact us. We are ready to provide you with free version of dongle emulator for the period of quarantine. If it safes somebodys life, we will be happy!
+We know the situation about COVID-19 pandemic is catastrophic and believe our software can significantly reduce the risk of infection by allowing people workign at home using dongle emulator instead of physical key. If our software allows you or your emplyees to stay home, please contact us. We are ready to provide you with free version of dongle emulator for the period of quarantine. If it saves someone's life, we will be happy!
 
 ## Why dongle emulator
 
